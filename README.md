@@ -1,1 +1,0 @@
-# Treball-Final-de-Grau
